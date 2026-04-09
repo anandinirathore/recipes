@@ -2,5 +2,6 @@
 ## Ingredients 
 * avocado 
 * lemon 
-* salt 
+* salt
+* Estimates cost: 6-8 pounds 
 ## Instructions
